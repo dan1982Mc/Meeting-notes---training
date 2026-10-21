@@ -18,6 +18,18 @@ De sloop was deels uitgevoerd. Maikel meldt dat de benodigde sloopvergunningen e
 
 Een huurder in de als “71 AB” aangeduide eenheid is nog aanwezig. Volgens Maikel loopt er een juridische procedure om de huurder te laten vertrekken; de duur daarvan is onzeker en kan volgens hem nog lang duren. De groep bespreekt daarom of de verdere uitwerking op de wel beschikbare gegevens kan doorgaan, zonder op toegang tot deze eenheid te wachten. (00:01:09–00:01:18; 01:01:57–01:04:18)
 
+Namen en sprekerafkortingen
+
+Gebruik in de uiteindelijke notulen de onderstaande afkortingen tussen vierkante haken. Gebruik deze consequent bij iedere spreker. Schrijf namen niet steeds voluit en bedenk geen nieuwe afkortingen.
+
+Naam					Sprekerafkorting
+
+Gert-Jan				[GJ]
+Ron van der Meer			[RvdM]
+Maikel Aarts				[MA]
+Martijn Driessen			[MD]
+Rick Horion				[RH]
+
 ## Betrokkenen en namen
 
 Gebruik in de notulen waar passend de korte namen die in het gesprek worden gebruikt. De formele functies zijn niet voor alle personen duidelijk; vul die niet zelf in.
